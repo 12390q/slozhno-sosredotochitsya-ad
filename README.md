@@ -1,1 +1,1 @@
-https://github.com/DazhMaks-debug/slozhno-sosredotochitsya-ad
+https://github.com/12390q/slozhno-sosredotochitsya-ad.git
